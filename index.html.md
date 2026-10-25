@@ -1,1 +1,0 @@
-# 4sm2bz8frq-pixel.github.io
